@@ -1,1 +1,0 @@
-# mertcihandemirbas.github.io
